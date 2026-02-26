@@ -1,0 +1,1 @@
+# stricnice.github.io
